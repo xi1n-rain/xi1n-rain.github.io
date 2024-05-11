@@ -3,6 +3,6 @@
   
 
 
-- School Special Academic Scholarship, 2023.**(1%)**
+- National Scholarship, 2022&2023.**(top 0.2%)**
 
-- First-Class Academic Scholarship, 2022.**(8%)**
+- First-Class Academic Scholarship, 2022&2023.**(top 2%)**
